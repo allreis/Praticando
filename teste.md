@@ -1,0 +1,1 @@
+tentando oq eu aprendi
